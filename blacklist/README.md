@@ -133,6 +133,7 @@
 |广州|[网易游戏](https://game.163.com/)|2019年4月7日|10106|[看准网](https://www.kanzhun.com/gsr15379tl56.html?ka=review-label14)|[知乎](https://www.zhihu.com/question/20563272/answer/57486502)|
 |广州|[三七互娱](www.37wan.net/)|2019年4月7日|9115 9116?|[看准网](https://www.kanzhun.com/gsr1906275.html?ka=com-blocker1-review#co_tab)|
 |广州|[广州创思信息技术有限公司（9377 游戏）](https://www.9377.com)|2019年4月8日|大小周加班|[知乎](https://www.zhihu.com/question/53318899)|
+|广州|[广东道一信息技术股份有限公司（道一云）](https://wbg.do1.com.cn/)|2021年1月8日|995|亲历|
 |成都|[tap4fun](https://www.tap4fun.com/)|2019年4月7日|996|[看准网](https://www.kanzhun.com/gsr59860tl56.html?ka=review-label15)|
 |成都|[成都二次元动漫有限公司](https://www.kanman.com/)|2018年12月1日|996|[图片-1](img/ecy1.jpg) [图片-2](img/ecy12.jpg)[图片-3](img/ecy4.jpg) + 亲历|
 |成都|[成都索贝数码科技股份有限公司](http://www.sobey.com/)|2019年4月8日| 996 无倒休 | [看准网](https://www.kanzhun.com/pl7169544.html) |
